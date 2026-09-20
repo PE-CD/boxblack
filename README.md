@@ -1,1 +1,1 @@
-# BOX BLACK - O Cangaceiro Dourado de Pernambuco
+# Meu Novo Mascote da Área de TI - Box Black
